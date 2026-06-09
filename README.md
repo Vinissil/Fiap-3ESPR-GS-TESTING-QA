@@ -32,7 +32,7 @@ https://github.com/FIAP-BitsNBytes/Fiap-3ESPR-GS-Mobile
 
 ### Vídeo Pitch
 
-INSERIR LINK DO YOUTUBE NÃO LISTADO AQUI
+https://youtu.be/k5pnDVZDgqw
 
 ---
 
